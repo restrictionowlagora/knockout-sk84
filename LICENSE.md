@@ -1,4 +1,4 @@
-
+Get ahead in knockout with instant Script for knockout, featuring auto-sell and anti-ban. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
